@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tidalyst
-- 👀 I’m interested in business and digital marketing analyis
+- 👀 I’m interested in business analyis
 - 💞️ I’m looking to collaborate on data analysis projects to help businesses achieve their goals
 - 📫 You can reach me on idarafavour9@gmail.com
 
